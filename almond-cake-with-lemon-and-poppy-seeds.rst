@@ -3,6 +3,7 @@ Almond cake with lemon and poppy seeds
 
 Ingredients
 -----------
+
 * 120g softened butter, plus a little extra 
 * 120g caster sugar, plus 1 tablespoon extra 
 * 4 large eggs, preferably free-range or organic, separated 
@@ -31,6 +32,6 @@ When cool, sift the icing sugar and mixed spice over the top of the cake and ser
 Tip: The butter needs to be very soft, so take it out of the fridge in advance
 
 Notes
-=====
+-----
 
 I use 5 medium eggs. Whisking the eggs whites takes the most time. For my oven, I baked at 160 degrees for 45 minutes.

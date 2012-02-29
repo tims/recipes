@@ -9,11 +9,13 @@ Ingredients
 * 1 red onion per person.
 * 1 clove or so of garlic per person.
 
-Optional.
+Optional
+
 * Poppy seeds if you have them.
 * A egg per person to help it set faster, you don't really need it though.
 
 The sauce
+
 * Tomato passata
 * splash of white wine, or a teaspoon of sugar.
 

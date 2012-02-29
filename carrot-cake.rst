@@ -43,7 +43,7 @@ In a separate bowl, whisk the egg whites with a pinch of salt until stiff, then 
 Mix all the icing ingredients together and spread generously over the top of the cake. Finish off with a sprinkling of chopped walnuts.
 
 Notes
-=====
+-----
 
 It works great. I think I didn't use enough flour as it was quite soggy after baking. I also forgot to leave it out for an hour to cool before icing it. Tasted great anyway.
 

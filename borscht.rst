@@ -12,9 +12,7 @@ Ingredients
 
 * 4 or 5 red onions.
 * A couple of cloves of garlic.
-* Beetroot. Don't use tinned beetroot. Use either:
-** 1 bunch of fresh beetroot.
-** Or 4 packs (with 4 beets per pack) of pre-boiled beetroot.
+* Beetroot. Don't use tinned beetroot. Use either: 1 bunch of fresh beetroot or 4 packs (with 4 beets per pack) of pre-boiled beetroot.
 * A savoy cabbage (or any cabbage would do).
 * 1 bay leaf.
 * 1 vegetable stock cube.

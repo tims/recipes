@@ -9,7 +9,8 @@ Ingredients
 * 2 lb Fresh pumpkin or squash
 * 1/4 cup of Corn oil
 
-* Sweet Tomato Sauce:
+Sweet Tomato Sauce:
+
 * 1 tablespoon Crushed garlic
 * 1 cup of Water
 * 1/2 tablespoon Salt
@@ -20,11 +21,14 @@ Ingredients
 * 1/4 ts Black pepper
 
 Yogurt Sauce:
+
 * 1/4 ts Crushed garlic,
 * 1/4 tablespoon Salt, 
 * 3/4 cup Plain yogurt
 
-Garnish: Dry mint leaves, crushed
+Garnish:
+
+* Dry mint leaves, crushed
 
 Directions
 ----------

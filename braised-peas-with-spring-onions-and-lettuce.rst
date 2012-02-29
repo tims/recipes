@@ -17,7 +17,7 @@ Ingredients
 * 6 spring onions, trimmed, outer leaves discarded, and finely sliced
 * 400g fresh or frozen peas
 * 2 little gem lettuces, sliced
-sea salt and freshly ground black pepper
+* sea salt and freshly ground black pepper
 * juice of 1 lemon
 * good-quality extra virgin olive oil
 
